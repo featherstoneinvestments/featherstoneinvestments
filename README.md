@@ -93,6 +93,14 @@ Whether you are building long-term wealth or actively managing your portfolio, F
 
 ---
 
+## Our Expertise & Services
+
+| Strategic Investing Starts With Smart Goals | Turn Strategy Into Action | Maximize Opportunities Across Global Markets |
+|---------------------------------------------|---------------------------|----------------------------------------------|
+| We help you define your financial objectives and risk profile — whether you're focused on long-term wealth, short-term gains, or portfolio diversification. Our platform tailors your experience based on your unique investment vision. | Use our powerful tools, market analysis, and AI-driven forecasts to build a custom investment plan. Then seamlessly execute your strategy with access to leading global assets — from stocks and ETFs to crypto and commodities. | Track performance in real-time, spot emerging trends, and adjust your portfolio with ease. Our platform supports dynamic growth through data, automation, and continuous optimization. |
+
+---
+
 ## Core Values
 
 | Value | Commitment |
