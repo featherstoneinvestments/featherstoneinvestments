@@ -113,16 +113,6 @@ Whether you are building long-term wealth or actively managing your portfolio, F
 
 ---
 
-## Online Presence
-
-🌐 Website: https://featherstoneinvestments.com
-
-💻 GitHub: https://github.com/featherstoneinvestments
-
-📍 Location: United Kingdom
-
----
-
 ## Contact Us
 
 ### Speak With Real Experts. Anytime, Anywhere.
@@ -136,6 +126,8 @@ Whether you need guidance, technical support, or market insight, we're always re
 📞 **Phone:** +41 58303-2775
 
 📧 **Email:** [support@featherstoneinv.email](mailto:support@featherstoneinv.email)
+
+🌐 Website: https://featherstoneinvestments.com
 
 📍 **Address:**
 Pfingstweidstrasse 110
