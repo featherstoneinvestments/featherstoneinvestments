@@ -115,6 +115,46 @@ Whether you are building long-term wealth or actively managing your portfolio, F
 
 ---
 
+---
+
+# Contact Us
+
+## Speak With Real Experts. Anytime, Anywhere.
+
+Our team of professional account managers and multilingual support specialists is here to empower your investment journey — not just answer questions.
+
+Whether you need guidance, technical support, or market insight, we're always ready to help you trade smarter, faster, and with greater confidence.
+
+### Contact Information
+
+📞 **Phone:** +41 58303-2775
+
+📧 **Email:** [support@featherstoneinv.email](mailto:support@featherstoneinv.email)
+
+📍 **Address:**
+Pfingstweidstrasse 110
+8005 Zurich, Switzerland
+
+---
+
+### Why Contact Featherstone Investments?
+
+✔ Professional Account Managers
+
+✔ Multilingual Customer Support
+
+✔ Investment Guidance & Market Insights
+
+✔ Technical Assistance
+
+✔ Fast Response Times
+
+✔ Client-Focused Service
+
+Our mission is to provide responsive, professional support that helps investors make informed decisions and achieve their financial objectives with confidence.
+
+---
+
 ## SEO Keywords
 
 **Featherstone Investments**, **Featherstone Investments Reviews**, **featherstoneinvestments**, **featherstoneinvestments.com reviews**, secure investment platform, financial technology, AI-powered investing, portfolio management, wealth management, United Kingdom investment company.
